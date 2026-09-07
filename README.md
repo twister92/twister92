@@ -1,2 +1,3 @@
 -  ill finish this when i remake my straw
--  pwnedbycaleb244 on discord be 15+ to interract
+-  pwnedbycaleb244 on discord be 15+ to interract (my roblox user is the same)
+-  im mainly focused on mm12 and roblox hackers (i do play forsaken alot)
