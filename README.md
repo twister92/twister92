@@ -1,4 +1,4 @@
--  ill finish this when i remake my straw
+-  ill finish this soon once i either draw or find stuff off of tumblr
 -  pwnedbycaleb244 on discord be 15+ to interract (my roblox user is the same)
 -  im mainly focused on mm12 and roblox hackers (i do play forsaken alot)
 -  you should check out my friends super duper cool roblox au he posts about on tiktok @taotv_archive
