@@ -3,4 +3,4 @@
 -  im mainly focused on mm12 and roblox hackers (i do play forsaken alot)
 -  you should check out my friends super duper cool roblox au he posts about on tiktok @taotv_archive
 -  im mostly offtab and busy now that uni started
--  @blueberrysys
+-  https://github.com/blueberrysys
