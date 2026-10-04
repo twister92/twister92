@@ -1,6 +1,1 @@
-IM ACTIVELY WORKING ON MY PAGES!!!!111314
-
-- i am all itrapped. forsaken? i am mm12? i am rha? i am redacted? i am heck even any other small fandoms that include itrapped? i am. i am itrapped
-- no idgaf about doubles, and i especially encourage possible canonmates to interract (rha ellernate iwc i have mixed feelings)
-- just because we are a system doesnt mean you should treat us any differently (this will be added to my either rentry or strawpage soon enough im just keeping it here for now)
-- i am the biggest and one s.t.o.p. album lover
+![](https://media.discordapp.net/attachments/1376270179864018987/1556315299186348173/Untitled329_20261004174112.png?backend=b2&ex=6ac3b712&is=6ac26592&hm=596b8f4f35f9c09a5061acaa87ae27ffcaf84bb639769486f5d533e29236a0e0&=&format=webp&quality=lossless)
