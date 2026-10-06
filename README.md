@@ -1,1 +1,10 @@
-![](https://media.discordapp.net/attachments/1376270179864018987/1556315299186348173/Untitled329_20261004174112.png?backend=b2&ex=6ac3b712&is=6ac26592&hm=596b8f4f35f9c09a5061acaa87ae27ffcaf84bb639769486f5d533e29236a0e0&=&format=webp&quality=lossless)
+<div align="center">
+<details>
+<summary>${{\color{#6786a6}\normalsize{\textsf{💙}}}}$</summary>
+
+- ${{\color{#00FFFF}\normalsize{\textsf{I block freely}}}}$
+- ${{\color{#00FFFF}\normalsize{\textsf{15- IWC}}}}$
+- ${{\color{#00FFFF}\normalsize{\textsf{SYS}}}}$
+- ${{\color{#00FFFF}\normalsize{\textsf{My pages are still wip}}}}$
+- ${{\color{#00FFFF}\normalsize{\textsf{I'm mostly busy during weekdays due to uni(on the path to become a trilingual)}}}}$
+</details>
