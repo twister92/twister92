@@ -7,4 +7,5 @@
 - ${{\color{#00FFFF}\normalsize{\textsf{SYS}}}}$
 - ${{\color{#00FFFF}\normalsize{\textsf{My pages are still wip}}}}$
 - ${{\color{#00FFFF}\normalsize{\textsf{I'm mostly busy during weekdays due to uni(on the path to become a trilingual)}}}}$
+- ${{\color{#00FFFF}\normalsize{\textsf{I love Ellernate and Merely heh}}}}$
 </details>
